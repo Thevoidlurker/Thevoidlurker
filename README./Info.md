@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Thevoidlurker,
+- 👀 I’m interested in coding, tech, and stuff like that,
+- 🌱 I’m currently learning the stuff that a 6th grader does,
+- 💞️ I don't know what I want to collaborate on.
